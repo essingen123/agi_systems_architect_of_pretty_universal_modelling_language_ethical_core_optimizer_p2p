@@ -1,4 +1,4 @@
-# agi_systems_architect_of_pretty_univeral_universal_modelling_language_ethical_core_optimizer_p2p
+# agi_systems_architect_of_pretty_universal_modelling_language_ethical_core_optimizer_p2p
 😁
 
 # Elastic Eco Systems Architecture (EESA) - README Manifesto
